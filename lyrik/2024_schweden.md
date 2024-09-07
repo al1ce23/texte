@@ -1,3 +1,7 @@
+# Schweden
+
+## haiku´s
+
 zeit kommt zeit vergeht  
 doch raum ist da wo du bist  
 nimm mich mit dorthin
@@ -10,12 +14,16 @@ was kommt auch vergeht
 alles wiederholt sich  
 erlebe den weg
 
+## Zeichen
+
 ich brauche keine zeichen mehr,  
 ich weiß das du da bist,  
 universum,  
 du alles,  
 du ich,  
 du nichts.
+
+## 8
 
 alles ist eins,  
 außer die null,  
