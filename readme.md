@@ -1,0 +1,3 @@
+# selbstgeschriebenes
+
+lyrik, prosa & mehr
